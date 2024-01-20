@@ -10,7 +10,7 @@
 
 Есть две девочки
 
-https://youloveit.ru/uploads/gallery/main/803/youloveit_ru_dasha_i_druzya_priklucheniy_5.jpg
+![](../%D0%BB%D0%B8%D0%B7%D0%B0/IMG_1451.jpg)
 
 сейчас я догоняю свою группу по учебе 
 
